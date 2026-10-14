@@ -3,7 +3,8 @@
 
 A collaborative list of regular students for OSP Evening 2026.
 Add your name by following the steps below.
-
+Isaac Machot Maker 
+index no: 22-CYS-049
 ---
 
 ## ⚠️ Important Rules
